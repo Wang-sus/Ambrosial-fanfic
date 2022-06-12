@@ -1,6 +1,6 @@
--------------------------------------ALL CHARACTERS IN THIS STORY ARE ABOVE 18-----------------------------------
+## ALL CHARACTERS IN THIS STORY ARE ABOVE 18
 
-----------------------------------------------------Chapter 1---------------------------------------------------
+## Chapter 1
 
 EchoHackCmd was typing away at his pc "Ctrl + C, Ctrl + V"
 when Micheal bursts through the door with his blocky Roblox dick hanging out
@@ -11,7 +11,7 @@ Michael starts drooling on echos massive cock and gives him a blowjob.
 Echo tries to resist as hard as he can, But he can't stand it anymore, so he cums all over the place.
 But Yammi hears echo moan and starts to investigate... 
 
-----------------------------------------------------Chapter 2----------------------------------------------------
+## Chapter 2
 
 EchoHackCmd pulls a revolver out from under his pillow after realizing that he is now gay,
 but Yammi walks into his room pissed because she thinks hes cheating.
@@ -20,7 +20,7 @@ Yammi sees Michael smirk as he gets a boner, so she starts to run,
 but she trips on echos ear after he just blew his brain out.
 Then Michael catches Yammi, she's shaking so scared about what's about to happen next, but then...
 
-----------------------------------------------------Chapter 3----------------------------------------------------
+## Chapter 3
 
 They hear a shake, Micheal passed it off as just a random noise and proceeded to slide himself into yaami
 but then, they hear another shake. Then they see packet standing in a house across the street through the window
@@ -30,7 +30,7 @@ it's so powerful it's like a firefighters hose. His stream of cum is so powerful
 The cum eventually reaches Echo and brings him back to life. Then he shoots Michael in the head,
 steals all his money to get a plane ticket, and then heads off to fuck.
 
-----------------------------------------------------Chapter 4----------------------------------------------------
+## Chapter 4
 
 Yammi, after finally after losing her virginity, is happy and pissed at the same time,
 happy because she lost it but pissed because it was Michael, and he didn't even finish.
@@ -38,16 +38,16 @@ After realizing that packet saved her, she goes to suck his cock, but then he ca
 and he cums. Yammi fills up like a fucking balloon and flies away to go find echo.
 Meanwhile, echo is fucking Ceci but then...
 
-----------------------------------------------------Chapter 5---------------------------------------------------
+## Chapter 5
 
 Yaami bursts through the door after tracking echo via that apple airtag she put in his ass while he was sleeping.
 Yammi says, "I knew you were cheating on me.". Echo says, "yeah, and?".
 Yammi replied, "Fuck you guys." Then echo blurts out "literally". Yaami being horny, takes that offer
 And starts scissoring Ceci, but then echo feels left out,
- so being the little cry baby bitch that he kills himse- im just kidding lmao.
- He gets pissed, shoots yammi and cums all over Ceci for the 5th time.
-
-----------------------------------------------------Chapter 6 -The End------------------------------------------
+so being the little cry baby bitch that he kills himse- im just kidding lmao.
+He gets pissed, shoots yammi and cums all over Ceci for the 5th time.
+ 
+## Chapter 6
 
 Yammi doesn't get resurrected by echos cum because he's not as powerful as packets cum,
 but then she gets revived and tastes cum in her mouth and realizes that Ceci had fucked packet days earlier
@@ -63,18 +63,16 @@ And now that they are world leaders and can do absolutely whatever the fuck they
 they force Ceci to take a DNA test. And they find out that Echo is Ceci's step-bro.
 Echo gets put in jail for incest, and Hitler is eventually assassinated. And Yammi lives happily ever after with Ceci.
 
+## VOLUME 2
 
-----------------------------------------------------VOLUME 2----------------------------------------------------
-
-
-----------------------------------------------------Chapter 7---------------------------------------------------
+## Chapter 7
 
 After hearing about echo's cum being sold for millions Greyhammond decides to try and steal some,
 knowing that Echo is in the Minecraft hacking community he decides to DM him asking for some.
 The next day Echo DMs him and says, "no". Greyhammond asks why. and Echo only replies,
 "go find some money, pooron." so then greyhammond decides to dedicate to years of his life to learing how to hack.
 
-----------------------------------------------------Chapter 8----------------------------------------------------
+## Chapter 8
 
 After Learning how to hack shit, Grey tries to doxx Echo.
 After failing, he turns to the dark side, SKIDDING
@@ -86,7 +84,7 @@ and milk him. He is also gonna save some of his cum and drink the rest,
 that way he will be immortal,
 while having some cum to sell later.
 
-----------------------------------------------------Chapter 9----------------------------------------------------
+## Chapter 9
 
 Grey while on the plane meets a guy named Skid
 while telling him what he's going to do
@@ -97,7 +95,7 @@ Skid says yes and then they become best friends for the whole flight.
 when they depart Grey starts to get a little nervous because,
 of what Skid said about echo...
 
-----------------------------------------------------Chapter 10---------------------------------------------------
+## Chapter 10
 
 When Grey arives to Echos house he see's echo and his personal milker (yaami)
 Grey tries to reason with echo, to just get some free cum.
