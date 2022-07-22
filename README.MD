@@ -107,3 +107,29 @@ to sell. he opens up and Ebay listing and within 2 minutes gets an offer for
 200,000,000$ from Srxfiq. But then he DMs Grey asking him how he can prove,
 that the cum is indeed echos, so Grey turns on his webcam to reveal he is jesus.
 Srxfiq buys and Grey lives forever happily ever after.
+
+## VOLUME 3
+
+## Chapter 11
+
+Yammi now a 25 year old man joins the army to forget his past with packet and echo.
+He has to get recruited first by the us military but before he does he sees echo across from his house walking his puppy,
+and it reminds him of that succulent cum that came from that firehose of a cock "I cant drink it, It'll be too much. If i do ill die. I just need to focus on signing these forms."
+
+## Chapter 12
+
+
+After Yammi is done signing the forms he returns them but sees a man with such a large, plump, juicy bulge that he couldnt resist.
+Yammi sprinted full speed towards this man. **drooling** "Hey whats your name?" "My name is RICHARD THE MASSIAH! -
+i am a demi god from hell and i have a power such mortal could never use. My ability is called sharingcock jutsu."
+Yammi, not listening, says " JUST SHOW ME THAT FAT COCK OF YOURS NOW. I JUST NEED YOU TO.. TO EJACULATE IN MY MOUTH."
+Yammi continued to scream, even saying she was called suck machine in 4th grade.
+The drill sargent hears Yammi bitching about richards plump dick.
+"YOU FILTHY MAGGOT, YOU COMMUNIST TWINKLE-TOED GAY LITTLE CUNT, IF I HEAR ANOTHER WORD I WILL FUCK YOU IN THE ASS SO HARD YOULL BE SINGING BEETHOVEN THE REST OF YOUR LIFE!! NOW GET IN THE FUCKING BUS"
+
+## Chapter 13
+
+
+Now on the bus, Yammi starts to see more familiar faces such as skid and packet. The drill sargent heard packet bickering about how hes such an alpha cuck. " HEY FUCKTARD, KEEP TALKING SHIT AND ILL SHOVE A CACTUS UP YOUR DICK HOLE AND HAVE YOU PISS IT OUT. im gonna smoke some weed now." Packet decided he was gonna charge his cock laser for the war against russia and vladimir putin.
+Yammi, still staring down Richard fat bulge but then the drill sargent walks up to him and starts talking about his massive cock and then Yammi sees his face. The drill sargent was ECHO the whole time but before she could say anything they got to the base.
+Yammi starts unloading all his shit and then the men get ready for training...
